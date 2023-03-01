@@ -1,1 +1,0 @@
-# Ksendzov_Group_33
